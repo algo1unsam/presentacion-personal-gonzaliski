@@ -10,4 +10,6 @@ laboral como developer 😊.
 Me gustan demasiadas cosas como para enumerarlas pero en resumen paso mi tiempo dibujando en
 digital hace unos meses. También me apasiona la música, desde chico toco instrumentos y aunque
 ahora no toque mucho es algo que me atraviesa todo el tiempo. Por otro lado, me gustan
-los juegos de pc de casi todos los géneros.
+los juegos de pc de casi todos los géneros.(juegos fav: skyrim, warframe, resident evil 3 <3)
+
+![BLqYs9bg_400x400](https://user-images.githubusercontent.com/88340763/129076518-c42ba20c-259d-48da-b67c-cd7149a9064f.jpg)
