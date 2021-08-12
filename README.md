@@ -8,7 +8,7 @@ metiendome en un curso de Desarrollo Web Fullstack, para poder iniciar mi camino
 laboral como developer 😊.
 ### Hobbies
 Me gustan demasiadas cosas como para enumerarlas pero en resumen paso mi tiempo dibujando en
-digital hace unos meses. También me apasiona la música, desde chico toco instrumentos y aunque
+digital desde hace unos meses. También me apasiona la música, desde chico toco instrumentos y aunque
 ahora no toque mucho es algo que me atraviesa todo el tiempo. Por otro lado, me gustan
 los juegos de pc de casi todos los géneros.(juegos fav: skyrim, warframe, resident evil 3 <3)
 
